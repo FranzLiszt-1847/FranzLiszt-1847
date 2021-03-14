@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FranzLiszt-1847
-- 👀 I’m interested in play baskball
+- 👀 I’m interested in play basketball
 - 🌱 I’m currently learning android
 - 💞️ I’m looking to collaborate on android
 - 📫 How to reach me :News53231323@163.com
